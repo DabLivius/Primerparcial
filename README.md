@@ -1,2 +1,3 @@
 # Primerparcial
-Primer parcial
+First parcial.
+lost cuz so bad

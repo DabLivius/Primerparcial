@@ -1,3 +1,3 @@
 # Primerparcial
-First parcial.
-lost cuz so bad
+First parcial 2023
+Lost cuz I'm dumb.
